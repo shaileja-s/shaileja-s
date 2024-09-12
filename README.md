@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shaileja-s
+- 📫 How to reach me : @shailejaaa._
+- 😄 Pronouns: she/her
